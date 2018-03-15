@@ -1,0 +1,3 @@
+hey hey, such a nice day, pain in the right elbow, experiencing a new day, fire is coming closer and I am worring, cause I am behind and fire is getting closer, I know that I should not worry much, and I know that the destination is following us, it is such a funny situation, that you are being followed by the destination, yet run away from it, cause you love to be in the process.
+Or some combinations? what am I to you? a machine that you pull and push different variables from it? such a shamefull usage of me, you have degraded me, such pointless complaint, as useless as always, thank you very much.
+
