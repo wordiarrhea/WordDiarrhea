@@ -2,4 +2,4 @@ ok, thos is the first time that I am trying this, this fdelas a little bit wwird
 
 this specific feeling of not beingbeing responsibleness of what yousay and of what you create is amazing, it is just amazing, Rightnow, just right now that I am creating this endless string of letters, I am not seeing what i am typing, I am not
 
-hey there
+hey there hey hey
